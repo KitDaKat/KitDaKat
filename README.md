@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to count to 10
 - 💞️ I’m looking to collaborate on warcrimes
 - 📫 How to reach me dont
-- 😄 Pronouns: She/Her
+- 😄 Pronouns: Skibidi/Toilet
 - ⚡ Fun fact: The sky is purple when no one is looking... trust me.
 
 <!---
